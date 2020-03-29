@@ -1,0 +1,1 @@
+https://whitepaper.dydx.exchange/

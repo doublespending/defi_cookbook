@@ -1,0 +1,1 @@
+https://www.synthetix.io/uploads/synthetix_litepaper_mandarin.pdf
